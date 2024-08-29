@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ShukriAziz
 - 👀 I’m interested in horticulture, business networking and marketing
-- 🌱 I’m currently learning AI World Masterclasa
+- 🌱 I’m currently learning AI World Masterclass (don't want to be leftout)
 - 💞️ I’m looking to collaborate on horticulture, business networking and marketing, AI services and maybe business opportunities 
 - 📫 How to reach me wasap.me/60103106258
 - 😄 Pronouns: "the grass is greener where you water it"
